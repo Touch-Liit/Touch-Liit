@@ -1,16 +1,17 @@
-## Hi there 👋
+<div align="center">
 
-<!--
-**Touch-Liit/Touch-Liit** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+![image](https://github.com/user-attachments/assets/8ed12297-b704-4caf-8d0a-1e81b6fc92e4)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+
+<sup>〝“If you’re nothing without the suit, then you shouldn’t have it.”</sup>
+
+𝕋𝕙𝕖 𝕄𝕖𝕣𝕔𝕙𝕒𝕟𝕥 𝕠𝕗 𝔻𝕖𝕒𝕥𝕙
+
+
+$\color{red} Tony Stark — Genius, billionaire, playboy, philanthropist.$
+
+Check out my strawpage !!! (plzz) 
+
