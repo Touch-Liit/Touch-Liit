@@ -28,18 +28,20 @@
   #### $${\color{#bd2148}important \space note:}$$ 
 <br> <sup> also, i put my skins onto my [pinterest](https://www.pinterest.com/illnessthatilove/) for inspo ot someone who is struggling to make marvel skins. not for copy. thank you. ![0842d751](https://github.com/user-attachments/assets/c3f0ec76-9dec-4e70-9343-61af36aaeb7e)
 
-
 <details>
 <br> </sub><summary>views</summary><h5 align="center">
 
 ![](https://komarev.com/ghpvc/?username=Touch-Liit&color=bd2148&label=✮+⋆+˙&base=2011) </h5></details>
-<br>
 <details>
 <br> <summary>spotify</summary>
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=316eumwawgchf2wpa5ec6lak5pai&cover_image=true&theme=default&show_offline=true&background_color=2c1115&interchange=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=316eumwawgchf2wpa5ec6lak5pai&redirect=true)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=316eumwawgchf2wpa5ec6lak5pai&cover_image=true&theme=default&show_offline=true&background_color=2c1115&interchange=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=316eumwawgchf2wpa5ec6lak5pai&redirect=true) </h5></details>
 
-</details>
+<details>
+</sub><summary>credits</summary><h5 align="center">
+
+<sub> the pfp and first gif are from purrfectos on discord !
+<br> dividers are from  @hyuneskkami on tumblr </h5></details>
 
 ![tumblr_907f0a419c48a3b27b59acc935baf281_b64ccf47_1280](https://github.com/user-attachments/assets/3dcc3b0e-313e-4513-8748-b4e6e336b104)
 ![tumblr_345e5ed0ac0363e696bb93b85133b7eb_5539a831_1280](https://github.com/user-attachments/assets/ef5eaa2d-3ff5-4cae-89d1-ac2820617a74)
