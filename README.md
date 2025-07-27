@@ -39,12 +39,16 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=316eumwawgchf2wpa5ec6lak5pai&cover_image=true&theme=default&show_offline=true&background_color=2c1115&interchange=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=316eumwawgchf2wpa5ec6lak5pai&redirect=true)
 
+</details>
+
 ![tumblr_907f0a419c48a3b27b59acc935baf281_b64ccf47_1280](https://github.com/user-attachments/assets/3dcc3b0e-313e-4513-8748-b4e6e336b104)
 ![tumblr_345e5ed0ac0363e696bb93b85133b7eb_5539a831_1280](https://github.com/user-attachments/assets/ef5eaa2d-3ff5-4cae-89d1-ac2820617a74)
 ![tumblr_8c58d53a265c159cde10fe03a280b73a_4549453f_1280](https://github.com/user-attachments/assets/837db44e-3d20-4e3a-a576-479e291ed539)
 ![tumblr_1c0602f924a677f3f1b7dc65baeefcda_dbd34f23_1280](https://github.com/user-attachments/assets/19477766-2b72-42b2-9e4e-42a83242eaad)
 ![tumblr_f8b46d4f8aef026fb294cc62c738c42b_8b02def8_1280](https://github.com/user-attachments/assets/676434d4-323c-4126-a783-59091bb62b10)
 
+
+https://github.com/user-attachments/assets/0613375d-8336-4688-9ec9-53e2a233a8dd
 
 
 
