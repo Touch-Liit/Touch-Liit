@@ -40,7 +40,7 @@
 <details>
 </sub><summary>credits</summary><h5 align="center">
 
-<sub> the pfp and first gif are from purrfectos on discord !
+<sub> the pfp and first gif are from purrfectos on discord / [FEL1NES](https://github.com/FEL1NES) on github !
 <br> dividers are from  @hyuneskkami on tumblr </h5></details>
 
 ![tumblr_907f0a419c48a3b27b59acc935baf281_b64ccf47_1280](https://github.com/user-attachments/assets/3dcc3b0e-313e-4513-8748-b4e6e336b104)
