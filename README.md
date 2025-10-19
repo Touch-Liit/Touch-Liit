@@ -1,7 +1,8 @@
 <div align="center">
 
 
-![Thiết kế chưa có tên (1)](https://github.com/user-attachments/assets/1e169f57-1632-41a5-9ca6-418b0afb1a80)
+![New_Project_20_2](https://github.com/user-attachments/assets/6cc7b1ee-86f2-4bce-ba29-0d627ddfec5f)
+
 
 <sub> $${\color{#bd2148}“If \space you’re \space nothing \space without \space the \space suit, \space then \space you \space shouldn’t \space have \space it.”}$$
 
@@ -40,7 +41,7 @@
 <details>
 </sub><summary>credits</summary><h5 align="center">
 
-<sub> the pfp and first gif are from purrfectos on discord / [FEL1NES](https://github.com/FEL1NES) on github !
+<sub> the pfp is from purrfectos on discord / [FEL1NES](https://github.com/FEL1NES) on github ! graphic from death.bedss on disc
 <br> dividers are from  @hyuneskkami on tumblr </h5></details>
 
 ![tumblr_907f0a419c48a3b27b59acc935baf281_b64ccf47_1280](https://github.com/user-attachments/assets/3dcc3b0e-313e-4513-8748-b4e6e336b104)
